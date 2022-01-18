@@ -10,4 +10,4 @@
 
 > 1MS18CS122     SIMRANJEET SINGH
 
-[!link](https://docs.google.com/document/d/190WT93VxyaNISPE26LU0HrZehFC4fxzeGqzVWJkxLjU/edit?usp=sharing)
+### [GOOGLE DOCS](https://docs.google.com/document/d/190WT93VxyaNISPE26LU0HrZehFC4fxzeGqzVWJkxLjU/edit?usp=sharing)
